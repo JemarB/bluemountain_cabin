@@ -1,0 +1,1 @@
+# bluemountain_cabin
